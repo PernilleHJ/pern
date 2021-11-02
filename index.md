@@ -5,7 +5,7 @@ Hvadsåhvadsåhvadsåhvadsåhvadså???? 🔥
 Velkommen til min side stalker 🙋🏼‍♀️
 Hyggeligt du ville [kigge forbi](https://www.youtube.com/watch?v=GKmfUoqRxno) 💃
 
-Jeg er Pern og selv tak for det! <IMG SRC=(https://www.instagram.com/p/BgrTeFigXQq/)>
+Jeg er Pern og selv tak for det!
 
 
 ### Kontakt mig her
