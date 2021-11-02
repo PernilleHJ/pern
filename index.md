@@ -19,4 +19,3 @@ Eller faktisk bare please lad vær
 På forhånd tak 💁🏼‍♀️
 
 Ha' det ik' ogs' 🤓
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/PernilleHJ/pern/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
